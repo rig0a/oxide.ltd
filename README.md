@@ -14,3 +14,10 @@ patronising to continue to play along.
 
 Your hometown sucks, and the worst part about it is the adults that would 
 prefer to see everyone stay in high school their entire lives.
+
+
+(three month delay)
+
+## What about now
+
+broke as shit and everyone is playing a name game
